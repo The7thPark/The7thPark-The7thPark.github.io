@@ -1,1 +1,1 @@
-# The7thPark-The7thPark.github.io
+# The7thPark.github.io
